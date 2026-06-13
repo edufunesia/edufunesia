@@ -1,4 +1,7 @@
 # Edukasi Fun Anak Indonesia
+Youtube : youtube.com/@edufunesia
+Email : edufunesia@gmail.com
+
 ## Syahroni Wahyu Iriananda
 - 👋 Hi, I’m @edufunesia
 - 👀 I’m interested in ...
